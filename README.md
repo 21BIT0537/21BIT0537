@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @21BIT0537
+- 👋 Hi, I’m @21BIT0537 Shreehari
 - 👀 I’m interested in ... Artificial Inteligence
 - 🌱 I’m currently learning ... Artificial Inteligence
 - 💞️ I’m looking to collaborate on ...
